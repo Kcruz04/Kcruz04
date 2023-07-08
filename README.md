@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **Outdoor friends Application**
 
-- 📫 How to reach me **kencruz@515@gmail.com**
+- 📫 How to reach me **https://www.linkedin.com/in/kenneth-c-420a5813a/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
